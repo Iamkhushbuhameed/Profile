@@ -1,7 +1,3 @@
-# Profile
-
-
-
 ![github-header-image (1)](https://github.com/khushbuhameed/khushbuhameed/assets/133598792/c488afec-5d99-412e-a302-f9cee5de64b6)
 
 
